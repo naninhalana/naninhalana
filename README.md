@@ -12,5 +12,5 @@ Meu nome é Alana Silvério
   
   @llanasilverio
 
-  ![](https://media1.tenor.com/m/PTUqxPwBfcUAAAAC/eww-ew.gif)
+  ![](https://media1.tenor.com/m/gqa7w0tbWNQAAAAd/dog-smile-shyboos.gif)
   
